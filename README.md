@@ -1,3 +1,2 @@
 # SEO-Table-urls
 
-
